@@ -1,10 +1,10 @@
 
 
-# 𝐆𝐞𝐫𝐚𝐥𝐁𝐨𝐭
-# `@𝐀𝐥𝐞.𝐢𝐳𝐧 `
+# 𝐀𝐝𝐫𝐢𝐞𝐥-𝐛𝐨𝐭
+# 
 
 ### `—◉ 👑 DUDAS SOBRE EL BOT?, CONTACTAME 👑`
-<a href="http://wa.me/+51904865141" target="blank"><img src="https://img.shields.io/badge/Ale-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" /></a>
+<a href="http://wa.me/+59176181985" target="blank"><img src="https://img.shields.io/badge/Ale-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" /></a>
 > NO BOT
 
 ### `—◉ 🖍 LETRA DEL BOT 🖍`
